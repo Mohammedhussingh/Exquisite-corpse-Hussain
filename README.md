@@ -1,3 +1,2 @@
 # Exquisite-corpse-Hussain
-Welcome to my repository.. 
-Start with me !
+Goedemorgen zonder zorgen. Helemaal naar de klote
